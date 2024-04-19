@@ -12,3 +12,5 @@ Ademas que respaldare todo mi conocimiento de codigo del engine a menos que lo c
 Usando la lista que hice ya casi 2 años xd
 
 Solo ve al apartado de wiki
+
+Ve al cuadrito de arriba que dice wiki con un librito aqui no puese nada
